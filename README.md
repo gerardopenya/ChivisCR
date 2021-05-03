@@ -2,5 +2,5 @@
 
 Que ondas gurrumina?
 
-Puesaquí... y que hoda hoy si.....?
+Pues aquí... y que onda, hoy si.....?
 
