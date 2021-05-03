@@ -1,1 +1,3 @@
 # ChivisCR
+
+Que ondas gurrumina?
